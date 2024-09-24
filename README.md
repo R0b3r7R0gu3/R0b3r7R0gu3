@@ -2,7 +2,7 @@
 - 👀 I’m interested in Creating Tools and learning informatic
 - 🌱 I’m currently learning informatic at high school
 - 💞️ I’m looking to collaborate on github with xiajiajun516
-- 📫 How to reach me R0b3r7R0gu3@github.com
+- 📫 How to reach me R0b3r7R0gu3.github.com@gmail.com (in tomorrow you can contact me) i will respond as soon as i can 😄
 - 😄 Pronouns: He/They
 - ⚡ Fun fact: I'm trying to create my first tool since 2 years ago
 
